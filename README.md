@@ -34,5 +34,7 @@ De wortel en ui schillen, de ui snipperen en de wortel grof raspen. Op een zacht
 
 Laat de soep nog een half uur staan voor het serveren. Opdienen met zure room en pampoeshky
 
+### [Recept](https://www.koken.be/recept/echte_oekraeiense_borsjtsj)
+
 
 
